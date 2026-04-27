@@ -1,4 +1,4 @@
-
+rare aura ascension Scripts is the best aura ascension Script, featuring auto-collect and auto-sell. Safe and powerful for all your needs.
 
 
 
